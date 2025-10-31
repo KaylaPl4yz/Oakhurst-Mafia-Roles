@@ -35,7 +35,9 @@ The Writer [CUPID] :; With some thinking and creativity, you can create FANFICTI
 The Privileged [JESTER] :; My my, domt be fooled by their sweet tongue! Voting out this spoiled brat will be a very, //very// bad choice. The neutral team will automatically win! This however, does not apply if you killed the Jester In Game!
 
 The Pearl [COOK] :; Their cooking is an absolute delight, especially with its ingredients being fresh from the source! They wanted to share their creation with their neighbors, but Do be wary! This food may or may not contain venom and quite possibly, werewolf blood .
+
 ---
+
 # [[ EVIL TEAM || THE COVEN ]]
 <sub> " Vampires gone woke?!?? „ - v!PyroScythe </sub>
 
