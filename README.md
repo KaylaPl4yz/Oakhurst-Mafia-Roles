@@ -18,7 +18,9 @@ The Militia [JAILER] :; Formed by a former student at Oakhurst, its their job to
 The General [SOLDIER] :; A reason you were discharged from the military is because you cant handle blood, and in this town, Its nearly impossible to avoid it. You may attack a person who you think is a part of The Coven. Get it wrong, and fate may have to collect you the next day.
 
 The Drift [SAVIOR] :; As a detective, they found this tome that allows the arts of necromancy. Could it be a gift from the gods? They have the ability to revive ONCE per player.
+
 ---
+
 # [[ NEUTRAL TEAM || UNLABELED ]]
 <sub> " When does a man become a monster? „ - Just a Man, E:TM </sub>
 
